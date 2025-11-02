@@ -1,3 +1,5 @@
+Política de privacidad.
+
 Esta política de privacidad se aplica a la aplicación PaymentOrganizer "Recorda Pagos" (en adelante, la "Aplicación") para dispositivos móviles, creada por DanielPoot (en adelante, el "Proveedor de Servicios") como servicio comercial. Este servicio se ofrece "TAL CUAL".
 
 
